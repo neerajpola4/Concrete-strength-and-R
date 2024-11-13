@@ -1,1 +1,0 @@
-# Concrete-strength-and-R
